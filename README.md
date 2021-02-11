@@ -1,0 +1,1 @@
+# Proyecto_Termometro_Estelar_-IJJ-
